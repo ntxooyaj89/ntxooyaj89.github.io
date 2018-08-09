@@ -1,1 +1,0 @@
-# ntxooyaj89.github.io
